@@ -3,13 +3,13 @@ Free Fire Diamond Hack 99,999[ Working Generator 2021
 [[Updated September 18, 2021]] Garena Free Fire Generator Unlimited Diamonds Hack Tool 2021
 
   `CLICK HERE Free Fire Diamond Hack.
-  <https://gamedip.xyz/hax/1bff2a1>`_
+  <https://filesmart.net/be4db31>`_
 
   `CLICK HERE Free Fire Diamond Hack 99999.
-  <https://gamedip.xyz/hax/1bff2a1>`_
+  <https://filesmart.net/be4db31>`_
 
   `CLICK HERE Free Fire Hack.
-  <https://gamedip.xyz/hax/1bff2a1>`_
+  <https://filesmart.net/be4db31>`_
 
 4 minutes ago - Click on the “Access Generator” button, and open the generator. Select the amount of “Free Fire Diamonds” you want to generate. A new pop-up will ask for your free fire username, enter your username and click the button “Generate”. Wait for the generator to finish the generating process.
 
